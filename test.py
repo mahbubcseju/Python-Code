@@ -1,1 +1,1 @@
-nrj rin 
+edb endej rin 
